@@ -1,4 +1,4 @@
-# Hey there! 👋
+# Ciallo～(∠・ω< )⌒☆! 👋
 
 I’m a Mechanical and Nuclear Control Engineer with a passion for creating cool stuff related to control systems, AI, and electronics. Right now, I’m working as an Atomic Bombs Surface Polishing & Maintenance (ABSPM) Engineer. Yeah, that’s a REAL JOB! 😎
 
