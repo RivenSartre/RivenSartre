@@ -9,7 +9,7 @@ I’m a Mechanical and Nuclear Control Engineer with a passion for creating cool
 - **Personality:** Abstract and a bit mysterious. I enjoy doing things that are both puzzling and efficient. 🤔💡
 - **Online Life:** I’m a bit of a web enthusiast and like to engage in all kinds of fun and weird internet activities. 😜🎉
 - **Real Life:** Pretty much living the dream with a fulfilling and rich life. 🌟
-- **Dream:** To become a forever 15-year-old magical girl! (まほしょうじょ) ✨🌈
+- **Dream:** To become a forever 15-year-old magical girl! (まほうしょうじょ) ✨🌈
 
 Feel free to explore my projects or drop me a message. Let’s connect and make some magic happen! ✨🚀
 
